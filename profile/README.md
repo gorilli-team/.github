@@ -19,7 +19,7 @@ Whether you're an entrepreneur, developer, or investor, Gorilli is always lookin
 
 ## 📬 Contact
 
-For inquiries, partnerships, or opportunities, visit [gorilli.io](https://gorilli.io) or reach out to us via [your contact info].
+For inquiries, partnerships, or opportunities, visit [gorilli.io](https://gorilli.io) or reach out to us via paolo@gorilli.io
 
 ## 📜 The Gorilli Manifesto
 
